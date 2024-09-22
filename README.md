@@ -1,2 +1,2 @@
 "practise stuff"
-"kishu is everything to me"
+"kishu is love"
